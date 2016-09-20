@@ -14,4 +14,3 @@ I enjoy games, cosmetics, movies and history.
 ### Contact me
 
 Here's my twitter handle: ViolentRd
-[email@domain.com](mailto:email@domain.com)
